@@ -18,7 +18,7 @@ $\text{\color{#f3646c} 10 25 23⠀⠀𑣲　⦂　 8 8 25 !!}$
 $\text{\color{#ffa441} hardcore andrew c-link/fictkin }$\
 $\text{\color{#ffa441} (source feel free to int i dont care) }$
 
-$\text{\color{#ffa441} most of the time im offtab coding, drawing, sleeping, etc plz whisper!!}$\
+$\text{\color{#ffa441} most of the time im offtab, plz whisper!!}$\
 $\text{\color{#ffa441} if i dont get back to you, i have an atabook!}$
 
 $\text{\color{#ffe822} very awkward btw..}$\
