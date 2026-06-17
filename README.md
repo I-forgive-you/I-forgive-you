@@ -6,7 +6,7 @@
 
 $\text{\color{#af0936} ︶︶˖ + TEL / ANDREW⠀ }$\
 $\text{\color{#af0936} ₊　masc⠀ ┈⠀unlabeled ╮˳}$\
-$\text{\color{#f3646c} autism + adhd   disabled}$\
+$\text{\color{#f3646c} audhd + ptsd   disabled}$\
 $\text{\color{#f3646c} 10 25 23⠀⠀𑣲　⦂　 8 8 25 !!}$
 
 <img align="center" src="https://files.catbox.moe/ddfcf4.gif">
