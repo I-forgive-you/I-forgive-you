@@ -19,7 +19,7 @@ $\text{\color{#ffa441} hardcore andrew c-link/fictkin }$\
 $\text{\color{#ffa441} (source feel free to int i dont care, pls dont be weird) }$
 <img align="center" src="https://github.com/I-forgive-you/I-forgive-you/blob/83b60083dd9e781f9d810c7e6d0f3c9a016a9a1a/ivandrew.png">
 
-$\text{\color{#ffa441} most of the time im offtab, plz whisper!!}$\
+$\text{\color{#ffa441} most of the time im asleep, plz whisper!!}$\
 $\text{\color{#ffa441} if i dont get back to you, i have an atabook!}$
 
 $\text{\color{#ffe822} very awkward btw..}$\
