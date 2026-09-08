@@ -15,7 +15,7 @@ $\text{\color{#f3646c} 10 25 23⠀⠀𑣲　⦂　 8 8 25 !!}$
 
 
 
-$\text{\color{#ffa441} hardcore andrew c-link/fictkin }$\
+$\text{\color{#ffa441} hardcore andrew c-link/fictive }$\
 $\text{\color{#ffa441} (source feel free to int i dont care, pls dont be weird) }$
 <img align="center" src="https://github.com/I-forgive-you/I-forgive-you/blob/83b60083dd9e781f9d810c7e6d0f3c9a016a9a1a/ivandrew.png">
 
