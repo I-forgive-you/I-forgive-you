@@ -2,7 +2,7 @@
 
 <img align="center" src="https://github.com/I-forgive-you/I-forgive-you/blob/3a258b3bd2f5eec1e6afe5eb09f3853c3774dfc3/image-e8d5-gradientmap.pro.png" width="800">
 
-<img align="left" src="TEMP PLACEHOLDER" width="400">
+<img align="left" src="https://github.com/I-forgive-you/I-forgive-you/blob/778e3e3ef5c14fb526e964d529ed7ac8e222c277/fuckface.png" width="400">
 
 $\text{\color{#af0936} ︶︶˖ + ANDREW⠀ }$\
 $\text{\color{#af0936} ₊　masc⠀ ┈⠀unlabeled ╮˳}$\
