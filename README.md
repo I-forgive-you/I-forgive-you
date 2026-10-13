@@ -2,12 +2,12 @@
 
 <img align="center" src="https://github.com/I-forgive-you/I-forgive-you/blob/3a258b3bd2f5eec1e6afe5eb09f3853c3774dfc3/image-e8d5-gradientmap.pro.png" width="800">
 
-<img align="left" src="https://github.com/I-forgive-you/I-forgive-you/blob/3a258b3bd2f5eec1e6afe5eb09f3853c3774dfc3/image_2026-03-14_024653111.png" width="500">
+<img align="left" src="https://github.com/I-forgive-you/I-forgive-you/blob/84ec072468abded0bc21e0a895bfd9af869d59ce/kinsona.png" width="400">
 
-$\text{\color{#af0936} ︶︶˖ + TEL / ANDREW⠀ }$\
+$\text{\color{#af0936} ︶︶˖ + ANDREW⠀ }$\
 $\text{\color{#af0936} ₊　masc⠀ ┈⠀unlabeled ╮˳}$\
 $\text{\color{#f3646c} audhd + ptsd   disabled}$\
-$\text{\color{#f3646c} 10 25 23⠀⠀𑣲　⦂　 8 8 25 !!}$
+$\text{\color{#f3646c} 10 25 23⠀⠀𑣲　⦂　 7 29 26 !!}$
 
 <img align="center" src="https://files.catbox.moe/ddfcf4.gif">
 <img align="center" src="https://files.catbox.moe/w8o7y4.gif">
