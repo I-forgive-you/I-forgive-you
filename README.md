@@ -17,7 +17,7 @@ $\text{\color{#f3646c} 10 25 23⠀⠀𑣲　⦂　 7 29 26 !!}$
 
 $\text{\color{#ffa441} hardcore andrew c-link/fictive }$\
 $\text{\color{#ffa441} (source feel free to int i dont care, pls dont be weird) }$
-<img align="center" src="https://github.com/I-forgive-you/I-forgive-you/blob/1d1a78591046c332053351e0d60144f6ba00a747/ivandrew2.png">
+<img align="center" src="https://github.com/I-forgive-you/I-forgive-you/blob/c375d2cd25908b3a0465777ea9174a8047e17513/ivandrew3.png">
 
 $\text{\color{#ffa441} most of the time im asleep, plz whisper!!}$\
 $\text{\color{#ffa441} if i dont get back to you, i have an atabook!}$
